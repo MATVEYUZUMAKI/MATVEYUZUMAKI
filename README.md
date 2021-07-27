@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @MATVEYUZUMAKI
 - 👀 I’m interested in Friday night funckin
-- 🌱 I’m currently learning cretion mods on fnf
+- 🌱 I’m currently learning creation mods on fnf
 - 💞️ I’m looking to collaborate on telegram
 - 📫 How to reach me: telegram:Жаренный снег
 <!---
